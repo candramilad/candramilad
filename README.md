@@ -2,7 +2,7 @@
 - 👀 I’m only interested of girls
 - 🌱 I’m currently learning DevNet Associate Cisco
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me WA me
 - jare mbahku neg maem kudu resik, ben bojone cuwantik 
 
 <!---
